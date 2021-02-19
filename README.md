@@ -1,0 +1,2 @@
+# android
+My story Im ethical hacker please halpe me global  im leazy  and i need evrything is free  my asisten work for me i want hack any user name and password without any time west so please halpe me make for me evrything easy follow my heart  like magic install me automatic any android siting   i want evry thing without credit card login emale  another i dont have atime  so get start  i want  make new hacking application  like 1 click then  hack any thing so please halpe me world php ruby perl python
